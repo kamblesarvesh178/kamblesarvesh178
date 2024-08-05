@@ -1,4 +1,4 @@
-👋 Hello! I'm a 3rd-year engineering student at PES Modern College of Engineering, passionate about developing innovative and robust software solutions. My dedication to coding and problem-solving drives me to continuously seek new challenges and opportunities to enhance my skills.
+👋 Hello! I'm a 4th-year engineering student at PES Modern College of Engineering, passionate about developing innovative and robust software solutions. My dedication to coding and problem-solving drives me to continuously seek new challenges and opportunities to enhance my skills.
 
 ✉️ LinkedIn: https://www.linkedin.com/in/sarvesh-kamble-46621082/
 
